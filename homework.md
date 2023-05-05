@@ -1,0 +1,1 @@
+postcards always spoil the writer's holidays. Last summer, he spend his holidays in Italian. he thought about postcards every day.he did not send cards to his friends. he bought thirty-senven cards on  the last day. he spent the all day in his room. he did not write a single cards
